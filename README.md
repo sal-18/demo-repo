@@ -7,7 +7,8 @@ Some description!
 
 Hey! wassup y'all !
 
-I am new to GitHub. 
+ok lets go enough
 
-ok now.
+how are you haha
+
 time to leave now
